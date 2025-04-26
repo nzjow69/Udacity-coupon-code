@@ -99,6 +99,21 @@ With this Udacity discount deal, you will get access to:
 * Expert Instructors: Learn from experienced professionals and industry leaders.
 * Certificate of Completion: Earn a recognized credential to boost your resume.
 
+## Udacity Coupon Code | Get $100 off
+
+Grab [**$100 off**](https://click.linksynergy.com/fs-bin/click?id=1Ptqr%2fByXKY&offerid=1730781.24&type=3&subid=0) with this Udacity coupon code, and save significantly on your annual subscription.
+
+[![Udacity coupon code $100 off](https://github.com/user-attachments/assets/73aaf49a-3bed-4b49-8a22-a135b2e84470)
+](https://click.linksynergy.com/fs-bin/click?id=1Ptqr%2fByXKY&offerid=1730781.24&type=3&subid=0)
+
+Get benefits such as:
+
+* 👉 Industry-Ready Programs: Courses are designed in collaboration with top tech companies like Google, Amazon, and Microsoft.
+
+* 👉 Real-World Projects: Learn by working on hands-on projects that mirror real industry challenges.
+
+👉 Personalized Career Support: Get resume reviews, interview preparation, and career coaching to boost your job prospects.
+
 ## [60% OFF] Udacity Labor Day Sale [Expired]
 
 Udacity’s Labor Day Sale offered [**60% off**](https://click.linksynergy.com/fs-bin/click?id=1Ptqr%2fByXKY&offerid=1730781.24&type=3&subid=0) Nanodegree programs in September 2024. While this deal has ended, it’s a reminder to watch for seasonal discounts like Udacity Labor Day coupon in 2025.
