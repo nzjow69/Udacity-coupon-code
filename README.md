@@ -114,6 +114,13 @@ Get benefits such as:
 
 👉 Personalized Career Support: Get resume reviews, interview preparation, and career coaching to boost your job prospects.
 
+## Udacity Discount for Students | Get 45% Off
+
+Grab [**45% off**](https://click.linksynergy.com/fs-bin/click?id=1Ptqr%2fByXKY&offerid=1730781.24&type=3&subid=0) if you have a valid student ID. Use this Udacity student discount code at checkout to save up to **$400/annually**.
+
+[![Udacity discount for students](https://github.com/user-attachments/assets/696076c3-97c6-41b7-b8c3-5b2cc1f65b9c)
+](https://click.linksynergy.com/fs-bin/click?id=1Ptqr%2fByXKY&offerid=1730781.24&type=3&subid=0)
+
 ## [60% OFF] Udacity Labor Day Sale [Expired]
 
 Udacity’s Labor Day Sale offered [**60% off**](https://click.linksynergy.com/fs-bin/click?id=1Ptqr%2fByXKY&offerid=1730781.24&type=3&subid=0) Nanodegree programs in September 2024. While this deal has ended, it’s a reminder to watch for seasonal discounts like Udacity Labor Day coupon in 2025.
